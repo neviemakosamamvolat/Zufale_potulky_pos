@@ -1,0 +1,1 @@
+Tonight, @thv took a turn in the audience as he watched @gracieabrams and @dojacat perform at #VogueWorld: Hollywood. No stranger to a fashion show either, the @bts.bighitofficial star dressed in a look that could have easily appeared on the runway.
